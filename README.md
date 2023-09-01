@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @devNavanee
 - 👀 I’m interested in website develope
-- 🌱 I’m currently learning Information Technology 
+- 🌱 I’m completed B.Sc Information Technology 
 - 📫 How to reach me 9025516960 and navaneethansakthivel37@gmail.com
 
 <!---
